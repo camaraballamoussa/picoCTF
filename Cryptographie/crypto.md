@@ -1,1 +1,1 @@
-La crypto est très facil
+La crypto est très facile
